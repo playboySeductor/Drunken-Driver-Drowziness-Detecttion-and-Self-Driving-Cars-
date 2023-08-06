@@ -46,7 +46,7 @@ Our mission is to make driving safer and more convenient for everyone. With the 
 
 Join us in creating a safer and smarter driving experience. Embrace the future of driving today with DriveCare AI.
 
-For inquiries, contact us at: sainikwarror132@gmail.com
+For inquiries, contact us at: sainikwarror132@gmail.com and panisaptarshi@gmail.com / @SaptarshiPani
 
 ---
 
